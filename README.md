@@ -19,15 +19,17 @@ Just call me ash or ashley .
 Non-binary , Onmisexual 
 
 
-I'm usually offtab or afk so I prefer for you to whisper me !
+I'm usually offtab or afk so I prefer for you to whisper me .
 
 
 
-C+h freely , and interact wen im not afk ! I don't bite ---
-
+C+h freely .
 
 
 Please don't interact if you disrespect me or my friends boundaries . 
+
+
+Iwc / Dniuid
 
 
 

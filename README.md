@@ -32,9 +32,6 @@ Please don't interact if you disrespect me or my friends boundaries .
 Iwc / Dniuid
 
 
-
-
-
 <img width="499" height="499" alt="Image" src="https://github.com/user-attachments/assets/7eab4bc7-e14e-4c5d-9990-73293a0279d6" />
 
 
